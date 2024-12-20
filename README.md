@@ -8,4 +8,5 @@
 
 
 #### Socials
-Discord: Bobb#3350
+Discord: stultify
+Email: rynguwork@gmail.com
