@@ -8,5 +8,5 @@
 
 
 #### Socials
-Discord: stultify
-Email: rynguwork@gmail.com
+- Discord: stultify
+- Email: rynguwork@gmail.com
